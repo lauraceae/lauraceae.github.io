@@ -66,7 +66,7 @@ De détruire tous les ponts derrières moi.
 Et j'ai décidé clandestinement   
 De tuer toutes les femmes.  
 Et j'ai déclenché la guerre contre toi.  
-Et quand j'ai pris mon arme.. Devant tes seins..  
+Et quand j'ai pris mon arme.. Devant tes seins..   
 J'ai perdu.  
 J'ai vu tes mains paisibles,   
 Ton coeur scintillait..  
