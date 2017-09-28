@@ -17,7 +17,7 @@ minima:
 #  - about.html
 
 disqus:
-    shortname: my_disqus_shortname
+    shortname: lauraceae.disqus.com
 
 # Build settings
 markdown: kramdown
