@@ -7,6 +7,7 @@ meta: "Laura"
 ---
 
 ## 1
+```
 Je t'ai promis de ne pas t'aimer, 
 Et devant cette grande décision, je lâchais.
 Je t'ai promis de ne pas revenir, 
@@ -16,8 +17,9 @@ Et j'ai été mort dans l'instant, mille fois.
 Et j'ai promis en continu, 
 J'ai décidé de démissionner, 
 Et je ne me rappelle pas que j'ai démissionné 
-
+```
 ## 2 
+```
 J'ai promis de l'impossible 
 On dirait fou ? 
 Suicidaire ?
@@ -31,7 +33,7 @@ Et de ne pas...
 Et de ne pas... 
 Et je me suis rendu compte
 Que je suis ridicule!
-
+```
 ## 3
 Je t'ai promis, 
 De négliger tes cheveux, 
