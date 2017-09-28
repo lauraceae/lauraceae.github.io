@@ -127,7 +127,7 @@ Je t'ai promis de ne pas t'aimer
 Quelle idiotie!  
 Qui suis-je ?  
 Que fais-je?   
-Oui j'ai mentis...   
+Oui j'ai menti...   
 À force d'être honnête.  
 
 ## 9
@@ -192,7 +192,7 @@ Et j'ai été mort dans l'instant, mille fois.
 J'ai promis...   
 L'impossible pour moi  
 Que faisais-je de moi-même?  
-J'ai mentis...   
+J'ai menti...   
 À force d'être honnête.   
 
 {% comment %}
