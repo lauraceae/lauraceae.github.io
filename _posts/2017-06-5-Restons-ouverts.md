@@ -26,12 +26,12 @@ Prendre son téléphone et dire le mot de tendresse que nous avons reporté. Ouv
 
 Et quand rien de tout cela n’est possible? quand il ne reste que la solitude, le sentiment d'être délaissé? 
 
-Il faut être alors la rose. La rose qui rêvait jour et nuit de la compagnie des abeilles, mais aucune ne venait se poser sur ses pétales. 
-La fleur, cependant, continuait à rêver. Durant ses longues nuits, elle imaginait un ciel où volaient de nombreuses abeilles, qui venaient tendrement l’embrasser. Ainsi, elle parvenait à résister jusqu’au jour suivant, où elle s’ouvrait de nouveau à la lumière du soleil. 
-Un soir, connaissant la solitude de la rose, la lune demanda :
-– N’es-tu pas lassée d’attendre ?
-– Peut-être. Mais je dois continuer à lutter. 
-– Pourquoi ?
-– Parce que si je ne m’ouvre pas, je me fane. 
+Il faut être alors la rose. La rose qui rêvait jour et nuit de la compagnie des abeilles, mais aucune ne venait se poser sur ses pétales.    
+La fleur, cependant, continuait à rêver. Durant ses longues nuits, elle imaginait un ciel où volaient de nombreuses abeilles, qui venaient tendrement l’embrasser. Ainsi, elle parvenait à résister jusqu’au jour suivant, où elle s’ouvrait de nouveau à la lumière du soleil.    
+Un soir, connaissant la solitude de la rose, la lune demanda :   
+– N’es-tu pas lassée d’attendre ?   
+– Peut-être. Mais je dois continuer à lutter.    
+– Pourquoi ?   
+– Parce que si je ne m’ouvre pas, je me fane.    
 
 Dans les moments où la solitude semble écraser toute la beauté, nous n’avons d’autre moyen de résister que de rester ouverts.
