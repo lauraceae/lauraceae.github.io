@@ -1,5 +1,5 @@
-title: Vit-On-Job 
+title: Lauraceae 
 description: Vit-On-Job, une technologie avancée au service du réseau des réseaux de l'emploi.
-show_downloads: true
+show_downloads: false
 google_analytics:
-theme: jekyll-theme-cayman
+theme: minima
