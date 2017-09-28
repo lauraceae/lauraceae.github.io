@@ -66,9 +66,9 @@ De détruire tous les ponts derrières moi.
 Et j'ai décidé clandestinement   
 De tuer toutes les femmes.  
 Et j'ai déclenché la guerre contre toi.  
-Et quand j'ai pris mon arme.. contre tes seins..  
+Et quand j'ai pris mon arme.. Devant tes seins..  
 J'ai perdu.  
-J'ai vu tes mains paisible,   
+J'ai vu tes mains paisibles,   
 Ton coeur scintillait..  
 Et j'ai tremblé..  
 J'ai promis de ne pas... et de ne pas et de ne pas...  
