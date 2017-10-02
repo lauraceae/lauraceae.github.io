@@ -182,7 +182,7 @@ Et entre nous,
 Pain et sel,  
 Du vin qui coule   
 Et chant des tourterelles   
-Et pigeons qui roucoule.   
+Et pigeons qui roucoulent.   
 
 ## 12
 Je t'ai promis   
