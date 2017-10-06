@@ -16,7 +16,7 @@ Après la millième fois,
 Je ne savais pas en faisant cela   
 J'ai assassiné mon soi.  
 
-"Je ne sais pas pourquoi tu n'as pas fais ce que tu avais envie de faire tout simplement"  
+"*Je ne sais pas pourquoi tu n'as pas fais ce que tu avais envie de faire tout simplement*"  
 
 Je ne sais pas pourquoi,   
 C'était contre la loi ?    
@@ -24,8 +24,8 @@ Ou j'avais peur de toi?
 De toute façon ça allait installer la joie,   
 Sur deux coeurs à la fois.   
 
-"Mes mains sont malgré moi attirées par ton corps"   
-"Et c'est pour ça aussi que je m'arrange pour te parler à des endroits où je sais que je ne pourrais rien faire"   
+"*Mes mains sont malgré moi attirées par ton corps*"   
+"*Et c'est pour ça aussi que je m'arrange pour te parler à des endroits où je sais que je ne pourrais rien faire*"   
 
 Je sais plus de ce que tu crois,   
 Je sais qui a tué le roi,   
@@ -33,8 +33,8 @@ Et que la princesse n'avais pas le choix,
 Je sais tout...   
 Le qui, le quand et le quoi.   
 
-"Peu importe qui a tué le roi, demande toi qui a tué la princesse..."   
-"Tu me manques..."
+"*Peu importe qui a tué le roi, demande toi qui a tué la princesse...*"   
+"*Tu me manques...*"
 
 Bien sûr je le prévois... 
 Après quelques mois,  
@@ -45,11 +45,11 @@ Elle était belle magnifique.. Pleinne de joie
 Un criminel qui a un coeur de bois,   
 Ou un vampire, du vin de sang, il boit.   
 
-"je t'aime gravement"   
+"**je t'aime gravement**"   
 
 ...   
 
-"C'est pas vraiment à cette réponse que je m'attendais"    
+"*C'est pas vraiment à cette réponse que je m'attendais*"    
 
 Trois points? tu demande à quoi sert ?   
 Mes trois points,   
@@ -63,19 +63,19 @@ Ce sont tous mes sentiments, mais en guerre!
 Manque, désir et amour.   
 Qui...
 
-"Il arrive.."  
+"*Il arrive..*"  
 
 
 
-"Je n'ai pas envie de te laisser"   
-"Je ne sais pas comment réussir à t'oublier quand je te vois tous les jours..."   
-"Quand je m'imagine dans tes bras a chaque fois que je les vois...."   
+"*Je n'ai pas envie de te laisser*"   
+"*Je ne sais pas comment réussir à t'oublier quand je te vois tous les jours...*"   
+"*Quand je m'imagine dans tes bras a chaque fois que je les vois...*"   
 
 Et moi ..  je ferais comment ?   
 Moi qui te vois même quand...    
 tu n'es pas devant?   
 
-"Je ne sais pas, fais comme ce weekend ..."    
+"*Je ne sais pas, fais comme ce weekend ...*"    
 
 C'était une chance d'un guerrier,   
 Qui a survécu devant une armée de soldiers,  
@@ -96,7 +96,7 @@ Dans son tombeau, il rit.
 À ce moment je ferais,   
 Comme le week-end dernier.   
 
-"Je ne peux rien garantir, la seule chose dont je sois sûre mnt c'est de la douleur que tu cause..."    
+"*Je ne peux rien garantir, la seule chose dont je sois sûre mnt c'est de la douleur que tu cause...*"    
 
 Des douleurs...   
 Quand je disparais    
@@ -108,15 +108,15 @@ Je ne sais pas comment réagir...
 Ayant tout comme toi,    
 Des douleurs..    
 
-"Si tu arrives à garder tes distances alors fais le"    
-"Moi je ne pense pas en être capable"   
-"Mais ne sois pas froid pour autant"   
+"*Si tu arrives à garder tes distances alors fais le*"    
+"*Moi je ne pense pas en être capable*"   
+"*Mais ne sois pas froid pour autant*"   
 
 C'est une équation à résoudre     
 La plus difficile eh oui..    
 que j'ai eu dans toute ma vie..   
 
-"... T'es fort en math..."    
+"*... T'es fort en math...*"    
 
 Moi qui se croyait "fort en math" et logique,   
 Qui jouait avec les x et y   
