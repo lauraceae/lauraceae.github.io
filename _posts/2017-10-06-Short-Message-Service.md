@@ -6,7 +6,7 @@ author: "Tim"
 meta: "Laura"
 ---
 
-"Crois-moi que ça a été une vraie torture ce weekend de ne pas avoir de tes nouvelles"   
+"*Crois-moi que ça a été une vraie torture ce weekend de ne pas avoir de tes nouvelles*"   
 
 Je sais et crois-moi,   
 C'était pareil, Aussi, pour moi.  
