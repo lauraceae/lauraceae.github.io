@@ -45,7 +45,7 @@ Elle était belle magnifique.. Pleinne de joie
 Un criminel qui a un coeur de bois,   
 Ou un vampire, du vin de sang, il boit.   
 
-"***je t'aime gravement***"   
+"***Je t'aime gravement***"   
 
 ...   
 
@@ -73,7 +73,7 @@ Qui...
 
 Et moi ..  je ferais comment ?   
 Moi qui te vois même quand...    
-tu n'es pas devant?   
+Tu n'es pas devant?   
 
 "*Je ne sais pas, fais comme ce weekend ...*"    
 
@@ -114,7 +114,7 @@ Des douleurs..
 
 C'est une équation à résoudre     
 La plus difficile eh oui..    
-que j'ai eu dans toute ma vie..   
+Que j'ai eu dans toute ma vie..   
 
 "*... T'es fort en math...*"    
 
