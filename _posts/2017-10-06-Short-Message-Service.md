@@ -45,7 +45,7 @@ Elle était belle magnifique.. Pleinne de joie
 Un criminel qui a un coeur de bois,   
 Ou un vampire, du vin de sang, il boit.   
 
-"**je t'aime gravement**"   
+"***je t'aime gravement***"   
 
 ...   
 
